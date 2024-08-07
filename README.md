@@ -18,7 +18,8 @@
 
 - 📫 How to reach me **harshilshah9681@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TOvFt-yat9G875HaWyrsxrA90mot5Lfx/view?usp=drive_link](https://drive.google.com/file/d/1TOvFt-yat9G875HaWyrsxrA90mot5Lfx/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1TOvFt-yat9G875HaWyrsxrA90mot5Lfx/view?usp=drive_link)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
